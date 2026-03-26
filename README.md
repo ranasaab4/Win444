@@ -1,0 +1,1 @@
+muja ak beting App bna kar do jis ma saab beting game install ho our rahi deposit ki bat to wo 03274715803 jazz cash jis banda na deposit karna hota ha ya wala number show karna our jab is ki limit puri ho jaya to 03274715801 ya wala number automatically add kar dana sai wali beting App bnao 
